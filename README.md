@@ -1,1 +1,0 @@
-# MYCC-certificates-and-certifications
